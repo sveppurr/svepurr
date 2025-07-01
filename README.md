@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Polina Kniazeva  
+# 👋 Hi, I’m Polina
 **Data Scientist** (finance background) • Remote DA/DS roles • Canada  
 
 [🔗 LinkedIn](https://www.linkedin.com/in/polina-kniazeva-412609345)  
